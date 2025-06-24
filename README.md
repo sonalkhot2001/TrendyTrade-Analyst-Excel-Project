@@ -1,0 +1,1 @@
+# TrendyTrade-Analyst-Excel-Project
